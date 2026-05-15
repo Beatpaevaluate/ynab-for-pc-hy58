@@ -1,4 +1,4 @@
-# 
+# updated YNAB for PC | YNAB for Windows Plugin | user-permissions + profit-and-loss offers the most advanced YNAB for PC | YNAB for Windows plugin, with user-permissions and
 
 
 
